@@ -1,6 +1,6 @@
 # Boluwatife Adebiyi Omotoyinbo
 
-Hello, GitHub! 👋  
+Hello, 👋  
 
 I'm **Boluwatife Adebiyi Omotoyinbo**, a **Product Designer** with a strong foundation in traditional and digital marketing.  
 I blend creativity with strategy, bringing expertise in **UI/UX design, print management, and web development**.  
